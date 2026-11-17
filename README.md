@@ -1,2 +1,0 @@
-# Mooshak
-Mooshak Puta
